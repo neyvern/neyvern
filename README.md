@@ -1,0 +1,6 @@
+- hi, i’m @neyvern :P
+- i really love pokemon !
+- my favs are noivern and hoopa
+- and i luv raihan too !!
+- pronouns: she / her
+- follow @noivernlover on tt 💯
