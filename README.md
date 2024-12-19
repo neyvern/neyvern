@@ -1,3 +1,3 @@
 - hi, i’m @neyvern :P
-- i really love pokemon !
+- i really love pokemon :D
 - if you're here from ponytown then you should add me !!
